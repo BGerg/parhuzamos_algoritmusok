@@ -1,0 +1,1 @@
+# parhuzamos_algoritmusok
